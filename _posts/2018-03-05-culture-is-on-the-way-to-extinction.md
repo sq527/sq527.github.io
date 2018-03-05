@@ -47,5 +47,5 @@ tags:
 
 ![](http://p53ullpww.bkt.clouddn.com/qrcode_for_527.jpg)
 
-微信扫描二维码，关注公众号“伍二柒”，发现更多精彩内容
+<center>微信扫描二维码，关注公众号“伍二柒”，发现更多精彩内容</center>
 
