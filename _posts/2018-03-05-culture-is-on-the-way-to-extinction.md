@@ -69,7 +69,6 @@ tags:
 
 有时候会反思，包括自己在内的许多人，对人，对事，对物，太不知所谓了，总觉得，怎么了，没关系，这不在着吗？是啊，现在在，一转身，一回头，可能就找不见了。因为无人记录，无人纪念，所以无人记得，彻底死去。幸存于山间乡野的他们，谁知道，过两年，城镇化建设的触角会不会伸到眼前，那时的他们，又将何去何从呢？
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/XLRn4lbBepBScFicYAsO196hxdPJqNicV5iaMpSlw6uxsWo9cypT734wnsrht5ZfGBg1LhJdAVbxgfvuHaLib3jAiaA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
-<center>微信扫描二维码，关注公众号“伍二柒”，发现更多精彩内容</center>
+![](https://mmbiz.qpic.cn/mmbiz_jpg/XLRn4lbBepBScFicYAsO196hxdPJqNicV5iaMpSlw6uxsWo9cypT734wnsrht5ZfGBg1LhJdAVbxgfvuHaLib3jAiaA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1 "微信扫描二维码，关注公众号“伍二柒”，发现更多精彩内容")
 
 
