@@ -13,7 +13,7 @@ tags:
 
 缘起于春节重访老宅一事。所谓老宅，指的是我爷爷奶奶旧时的居所，隐于山间，现已荒败。小时候，每逢春节，两位老人就会带我们上山拜祭曾祖父曾祖母。后来，回老家的次数越来越少，在老家的时间越来越短，这项常规活动就在我的生活中慢慢地消失了，正如慢慢消失的故乡。今年，不知是谁最先提议的，让我们再去山上故里看一看，于是，难得地，多年以后，三代再齐聚，向家乡的过去进发。
 
-![](http://img.wtoutiao.com/?url=https://mmbiz.qpic.cn/mmbiz_jpg/XLRn4lbBepBScFicYAsO196hxdPJqNicV5jJ9dDr6INWicUZypk7lCSHV1b7hz1yAVNswlyLY9VExWBibRdmaCPvTw/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![](http://p3.pstatp.com/large/6c2d00039a45a0aaac76)
 <center>老宅·屋后</center>
 
 这么些年，新修好的环山公路也已经成了家乡的旧人了，而我们的终点在更高、更深处，环山路也力所不能及，开车至半山，剩下的还需要靠步行。丛生的杂草快没了几代人一步步走出来的小路，不过还好，虽历经风雨飘摇，故里依旧在。
@@ -22,19 +22,19 @@ tags:
 
 至于房屋本身，小时候，我总当它是一片废墟，凑近了些，昏暗无光的老宅让人心悸。所以，那时我基本上在屋外破旧的小礼堂中完成祭拜仪式后就离开。这一天，是我第一次推门而入，涉足屋内，跟着爷爷和爸爸。
 
-![](http://img.wtoutiao.com/?url=https://mmbiz.qpic.cn/mmbiz_jpg/XLRn4lbBepBScFicYAsO196hxdPJqNicV5kyZjDmRukb2HLEKAQFg0maapyDria1noqqvJN3HQNiaOzKsLb8nxSkJA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![](http://p3.pstatp.com/large/6c2e00036c4c32cb99c7)
 <center>昏暗的屋内</center>
 
 蛛网满布，杂物散落一地，那是久无人居又被人洗劫过的模样。家中许多物什失窃，曾祖父曾祖母存着的铜钱没有了，原来的一套器乐，如今就剩一只鼓孤零零地躺在地上。爷爷和爸爸向我介绍屋里的情况，面色如常，看来这事已经发生许久了。
 
-![屋内一片狼藉](http://img.wtoutiao.com/?url=https://mmbiz.qpic.cn/mmbiz_jpg/XLRn4lbBepBScFicYAsO196hxdPJqNicV5NMp2bWlo29ylXg35pfnSrKKtG9yJVPyjfoszCgXhZOqcgrH9GBYYsQ/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![屋内一片狼藉](http://p3.pstatp.com/large/6c2f0003564b5b80d80a)
 <center>屋内一片狼藉</center>
 
 可惜了呀！儿时的我肯定是不会有这种感慨的，但是现在，多读了两页书的我，正为这些物件的流失而深感遗憾。作为那年此地生活风貌的忠实记录者，它们具有重要的民俗学乃至于历史学价值，要知道，不是上古文物才需要我们用心封存。不过，我又很庆幸，在一条条的文化之脉被斩首于天灾人祸面前时，因为藏于深山，它逃过被拆除被城镇化这一劫，以庄子所言——无用之用的方式幸存于世。
 
 离开时，爷爷又做回几十年前的那个住户，熟练有序地前后给栓上了门。我说，我们把这儿收拾收拾，都可以改造成家庭博物馆了呢。
 
-![](http://img.wtoutiao.com/?url=https://mmbiz.qpic.cn/mmbiz_jpg/XLRn4lbBepBScFicYAsO196hxdPJqNicV5b0Q8gL7f65gLWlMTb2R8n7bhw37KYC9CeHOnPoIAAVPicLRwxWNZarw/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![](http://p9.pstatp.com/large/6c33000100948eaef252)
 <center>古镇一隅</center>
 
 这一年春节，我们一家还去了附近的古镇游览，回家时，踏进熟悉的大院落，我和表妹相视一笑，原来花了大半天时间，我们是去了别人的地方，看了自己的家，何必呢？为什么呢？
@@ -45,7 +45,7 @@ tags:
 
 当代人各种群体性症候的成因中绕不开一个“房”字，买房，成了某种集体性夙愿。而对于久居村中或者终将回归乡村的人们来说，除了买房，心心念念的，还有盖房。他日飞黄腾达，衣锦还乡，必修一现代复式小楼，以正其名。于是，土夯楼少了，一幢幢新楼自发地建起来，公路、铁路的畅通更是催化剂，一时间，公路两侧的平地上，常见新老两房相依而立，而后，自下而上蔓延开来。搬进新房的人们笑脸盈盈，心满意足。
 
-![](http://img.wtoutiao.com/?url=https://mmbiz.qpic.cn/mmbiz_jpg/XLRn4lbBepBScFicYAsO196hxdPJqNicV5M5SiceggN2sD1q30OsKM14TbvB47U1JlJ1GaNZAqMmreqDRf7bVTNnQ/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![](http://p1.pstatp.com/large/6c300002f134e6ffe123)
 <center>建设中的村落与城镇</center>
 
 大家应该知道的，南方的村落多是依山而建，很不规整，沿路平地多，再建一座新房还方便些，但是越是往上就越麻烦，要是原有房址附近房屋密度大，就更增加了建设的难度。我们家就处在这么一个相对尴尬的位置，故而迟迟不动工。当然了，此中因由复杂，位置问题只是其中之一。
@@ -54,7 +54,7 @@ tags:
 
 我在家里缓缓移步时会想，童年时期的记忆力真好啊，那么多故事那么多话一直记到了现在。房前屋后储存着一幕幕与过去的我相关的影像，我从记忆胶片中，取出一卷，它便开始放映。玩蜡烛失手燃了一整捆木柴；爬墙上后山时踩了苔藓，脚下一滑，重摔在地；被装进大筐里用一把老秤移着秤砣称体重……许许多多回忆与念想附着在这里，拆掉？怎么忍心？怎么舍得？
 
-![](http://img.wtoutiao.com/?url=https://mmbiz.qpic.cn/mmbiz_jpg/XLRn4lbBepBScFicYAsO196hxdPJqNicV58eibagOrrmSpKicAvTnC7zNCyEUXB3uTUkhDEf571D2F2c7iavhgoaYnA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![](http://p9.pstatp.com/large/6c300002f133df58e5d1)
 <center>傍晚，村外的公路</center>
 
 若是家家户户均如此这般“辞旧迎新”，无异于此地文化的一次集体入殓，当最后一个知情者化为尘土，后来者何以知？蛛丝马迹或可循，但这乃是下下策啊。如今，各种历史文化古镇层出不穷，我也去过几座，虽说不少都存在商业气息过重的问题，但好歹它们因此而存续了下来，而且村（或是镇）与民相依、互利，在现阶段倒也不失为一个两全之策。
@@ -63,6 +63,6 @@ tags:
 
 有时候会反思，包括自己在内的许多人，对人，对事，对物，太不知所谓了，总觉得，怎么了，没关系，这不在着吗？是啊，现在在，一转身，一回头，可能就找不见了。因为无人记录，无人纪念，所以无人记得，彻底死去。幸存于山间乡野的他们，谁知道，过两年，城镇化建设的触角会不会伸到眼前，那时的他们，又将何去何从呢？
 
-![](http://img.wtoutiao.com/?url=https://mmbiz.qpic.cn/mmbiz_jpg/XLRn4lbBepBScFicYAsO196hxdPJqNicV5iaMpSlw6uxsWo9cypT734wnsrht5ZfGBg1LhJdAVbxgfvuHaLib3jAiaA/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1)
+![](http://p53ullpww.bkt.clouddn.com/qrcode_for_527.jpg)
 <center>微信扫描二维码，关注公众号“伍二柒”，发现更多精彩内容</center>
 
