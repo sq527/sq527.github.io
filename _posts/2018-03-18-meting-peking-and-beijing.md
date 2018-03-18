@@ -52,3 +52,6 @@ tags:
 选择遇见，意在发现……
 
 注：图片来源于网络
+
+![](http://p53ullpww.bkt.clouddn.com/qrcode_for_527_qiniu.jpg)
+<center>微信扫描二维码，关注公众号“伍二柒”，发现更多精彩内容</center>
