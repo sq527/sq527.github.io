@@ -1,13 +1,12 @@
 ---
 layout:     post
-title:      "从“广告牌”解读《三块广告牌》"
+title:      "从\"广告牌\"解读《三块广告牌》"
 date:       2018-04-02 10:00:00
 author:     "伍二柒"
 header-img: "img/about-bg-walle.jpg"
 catalog: true
 tags:
-    - 三块广告牌
-	- 影评
+    - 三块广告牌 影评
 ---
 
 《三块广告牌》我是奥斯卡奖公布前一天在影院看的，然而，懒懒懒，拖拖拖，现在才动笔……
